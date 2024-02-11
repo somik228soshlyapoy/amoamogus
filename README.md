@@ -1,0 +1,2 @@
+# amoamogus
+kakayato fignya
